@@ -15,5 +15,5 @@ untuk menciptakan solusi digital (aplikasi, website, sistem) dengan memecahkan m
 
 ## 🌐 Hubungi Saya
 - 📧 Email: akhmadnuryasinn@gmail.com
-- 🚀 Media Sosial: https://youtube.com/@sinn2301?si=TDT8HEcrJr8IETIf
+- 🚀 Media Sosial:https://www.instagram.com/sinn.2301?igsh=MWJmMXF3aGIwOHUxdw==)
 - 💻 GitHub: https://github.com/usernamekamu(https://github.com/usernamekamu)
